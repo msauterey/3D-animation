@@ -1,2 +1,2 @@
 # 3D-animation
-Collection of personal 3D animations made during my limited spare time.
+All the animations and pictures are the product of my own work, please contact me before any academic or commercial use.
